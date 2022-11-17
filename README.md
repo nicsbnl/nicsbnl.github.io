@@ -1,4 +1,5 @@
-# Welcome to nicsbnl.github.io
+# Welcome to nicsbnl's Site
+Wherein, you'll see my favorite things I do everyday!
 _ _ _
 # Things that I like to do
 - Play Badminton
