@@ -4,4 +4,4 @@ _ _ _
 - Neutral Colors
 - Dark Green
 - White
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fmedium.com%2F%40AyeeshaAbk%2Ffashion-neutral-colours-b502893a0522&psig=AOvVaw1bhBzaziUwjRZ4Y6qfsqGT&ust=1668751988303000&source=images&cd=vfe&ved=2ahUKEwjzho_dx7T7AhVcuFYBHacPDEgQjRx6BAgAEAo
+![image](https://user-images.githubusercontent.com/118245558/202370391-f9a7e844-1b1d-4e93-aefa-2326244c0346.png)
