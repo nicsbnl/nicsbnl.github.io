@@ -1,6 +1,6 @@
 # Welcome to nicsbnl.github.io
 _ _ _
-*My Favorite Colors*
+# My Favorite Colors
 - Neutral Colors
 - Dark Green
 - White
