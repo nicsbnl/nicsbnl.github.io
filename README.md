@@ -1,4 +1,4 @@
-# Welcome to nicsbnl's Site
+# **Welcome to nicsbnl's Site**
 Wherein, you'll see my favorite things I do everyday!
 
 _ _ _
